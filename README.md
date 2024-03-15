@@ -1,5 +1,6 @@
 # FUCK-YOU-virus-TBG
 Based off the character FUCK YOU virus from beta smosh
+this is not an actual virus btw
 
 https://youtu.be/cWW5k_3cecs?si=U91G7jjJ7GvBJqQD
 
